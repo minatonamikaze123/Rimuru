@@ -1,2 +1,2 @@
-# Rimuru
-Just a custom userbot!!! , Got no ideas....
+# noob
+im a freakin nub
